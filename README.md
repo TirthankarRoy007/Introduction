@@ -23,9 +23,8 @@
 
 
 
-I am a dynamic, dedicated, and determined individual who is always striving to reach my full potential. I am hardworking and proactive, and I always give 100% to whatever I do. I am also always looking for new opportunities to learn and grow.
- As a first-generation college student, I am familiar with the challenges that come with being the first in my family to attend college. However, I am also aware of the opportunities that come with this experience. I am committed to using my education to make a difference in the world, and I am passionate about working in a field that promotes equality, fairness, and inclusivity.
- In my spare time, I enjoy public speaking competitions, socializing, and being a part of the cheerleading team. I am also a part-time research assistant and a personal tutor for math, English, and science. I am always looking for new ways to challenge myself and grow as a person.
+I am a dynamic, dedicated, and determined individual who is always striving to reach my full potential. I am hardworking and proactive, and I always give 100% to whatever I do. I am also always looking for new opportunities to learn and grow.  However, I am also aware of the opportunities that come with this experience. I am committed to using my education to make a difference in the world, and I am passionate about working in a field that promotes equality, fairness, and inclusivity.
+ In my spare time, I enjoy public speaking competitions, socializing, and being a part of the cheerleading team. I am always looking for new ways to challenge myself and grow as a person.
  I am confident that I have the skills and determination to be a champion in whatever I set my mind to. I am always learning and growing, and I am committed to making a difference in the world.
 
 
